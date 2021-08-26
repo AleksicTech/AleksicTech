@@ -2,4 +2,4 @@
 - 👀 And I’m Web Developer.
 - 👨🏻‍💻 I love to code things from scratch.
 - 📫 You can contact me via e-mail: aaleksic260@gmail.com
-- 🖥 My discord account: A1eksic#5870
+- 🖥 My discord account: A1eksic#9999
